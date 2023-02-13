@@ -2,7 +2,7 @@
 
 Dzisiejsza data: 10.02.2023
 
-Autor: Iza&Marcin
+Autor: Iza
 
 Lubię: jeść i filmy
 
